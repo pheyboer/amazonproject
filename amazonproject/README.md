@@ -1,3 +1,0 @@
-# amazonproject
-
-first note
